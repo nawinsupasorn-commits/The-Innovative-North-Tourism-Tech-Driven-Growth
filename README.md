@@ -1,7 +1,5 @@
+### The-Innovative-North-Tourism-Tech-Driven-Growth
 
-ข้อมูลเชิงลึกและกลยุทธ์เพื่อปลดล็อกศักยภาพการท่องเที่ยวเชียงราย (Unlocking Chiang Rai's Tourism Potential)
-
-**แนวคิดหลัก:** การเติบโตและกลยุทธ์ที่ขับเคลื่อนด้วยข้อมูล (A Data-Driven Approach to Growth and Strategy)
 
 ## 1. ภาพรวมการท่องเที่ยว: เชียงราย vs ประเทศ (TOURISM OVERVIEW)
 
